@@ -5,4 +5,4 @@
 
 ## 📋 Profile
 
-ajinata84, 16 y/o guy from indonesia 🥖 <br/><br/>ofc im a student
+ajinata84, 16 y/o guy from indonesia  <br/><br/>ofc im a student
