@@ -5,7 +5,9 @@
 
 
 📃 <a href="https://ajinata84.github.io/my-profile">My profile</a>
+
 💻 <a href="https://ajinata84.github.io/blog">My Blog</a>
+
 🏫 <a href="https://github.com/prashajinata">you can check my school projects here</a>
 
 ## 📋 Profile
